@@ -1,1 +1,5 @@
+THIS IS NOT MY ORIGINAL WORK. 
+
+USING THIS AS A REPO FOR RUNEMILIO PROJECT RESOURCES
+
 just stuff to help the runemilio homies
